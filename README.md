@@ -1,3 +1,3 @@
-- 👋 Hi, I’m silvaaa24
-- 📫 How to reach me silvaaa24#2687
+- 👋 Hi, I hate fake civilians
+- 📫 How to reach me fakecivilians 
 
